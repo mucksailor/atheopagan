@@ -10,12 +10,14 @@ Currently, the archive includes Gab’s tweets, and a limited collection of
 articles and essays. It will continue to grow in the coming hours, days, weeks,
 months, and years.
 
-Please contact <archive@atheopagan.com> if you have anything to share:
-- essays
+Please contact <archive@atheopagan.com> if you have **anything** to share:
+
+- articles and essays
+- account backups
 - recordings
 - remembrances
-- correspondence
 - screenshots
-- anything that defies categorisation
+- correspondence
+- anything else that defies categorisation
 
 _1995–Ω_
