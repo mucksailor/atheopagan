@@ -54,4 +54,4 @@ Lacerations abound in the prism of my soul
 Bleeding exhortations that demand liberation
 My chosen serendipity
 A final gesture towards autonomy*
-(**WMC. Noise Amidst Cosmic Silence**: *A Higher Misery* | self/tbr)
+(**WMC. Noise Amidst Cosmic Silence:** *A Higher Misery* | self/tbr)
