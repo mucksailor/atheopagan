@@ -1,0 +1,101 @@
+---
+date: 2023-01-30
+source:
+  url: https://medium.com/@AtheopaganHeretic/burning-with-the-vault-of-heaven-11fed880527
+tags:
+- sybreed-lyrics
+---
+
+# Burning with the Vault of Heaven
+
+*Born to sanctify a mundane existence  
+Molded into the image of God  
+We aspire to perfect corruption  
+Souls which withstand the strain of divinity  
+An undeveloped taste for heresy  
+Consecrated poison nourishing distracted lives  
+Siphoning our mortal strength  
+We’ve dug the grave for our significance  
+Afraid to bury idols that bind us*  
+( — **WMC**. **Noise Amidst Cosmic Silence**: *Human Providence* | self/tbr)
+
+**Enter the 21st century.** The world is a ghetto overrun by exalted gangs with visions of grand designs. Individuals are reduced below their potential, distracted from developing authentic selves. We live as sundered husks demoralized.
+
+Our cultural mind share is infected with the neurosis of security. One cannot live long without encountering numerous roadblocks to *genuine* interactions. Coveted moments of bonding unspoiled by the hovering camera’s eye. It is rare to find a single event left unmolested. Spaces reserved for fun and exuberance are weighed down by pathological prep theatre. The disease is everywhere. Concerts are monitored with an excessive supply of security guards and entry checkpoints. A night trip to the park is disenchanted when cops beam flashlights into your eyes, always suspecting criminal intent. We settle for nothing and feel thankful for our chains. Held hostage not just to authority figures that govern us, but our shared addiction to an artificial sense of safety.
+
+This is our sickness. Self-constructed barriers slowing the path of anyone who would cross over them. Building meaningful lives amidst the insanity all around us seems like a hopeless cause. Yet through struggle we can aspire to break into the periphery of the impossible. One must have unconditioned faith in *who they can be* — even as your exterior form disintegrates into ashes while your organs feel as if they are burning from the inside. For one can make music out of their agonized screams.
+
+**Enter Sybreed,  
+Shadow Domain,  
+lyricist, composer, and singer Benjamin Nominet.**
+
+*I will give all I have  
+‘Till I burn from inside  
+Inner nova consuming my life  
+And this fire I have made  
+Ate through my flesh and heart  
+I have lived my own demise*  
+( — **SD**. **Digital Divide**: *Omega Point*)
+
+Ben is no stranger to pain and suffering. Littered throughout all his writings are very personal expressions of this fact. Ever the emotionally open artist, he is not afraid to bleed on the page. Combining cultural criticism and compelling expressions of personal misery, it is no surprise to find out that Nietzsche rates among his highest influences. With the personal and the social divided and then interlinked at any given moment, Ben offers a haunting condemnation of our modern ways of living — threaded through his own experience with numerous varieties of agony.
+
+A recurring theme in projects *Sybreed* and *Shadow Domain* alike is the association of pain with a burning sensation. Alongside the chorus of *Omega Point* already quoted above:
+
+*And every time I have to breath  
+In every way I can feel the pain  
+A liquid fire burning my lungs  
+An acid nail into my brain*  
+( — **S**. **Antares**: *Dynamic*)
+
+*And still you keep on denying the pain  
+The burn of profound misery  
+The itch running onto your skin  
+Do you enjoy the taste of shame, the blade of vanity?*  
+( — **S**. **Antares**: *Twelve Megatons Gravity*)
+
+*Let me hate you, I’ll never save you from yourself  
+Break me, constrain me, like an angel falling on burning grounds*  
+( — **S**. **Antares**: *Emma-0*)
+
+This searing pain may extend beyond its significance to ourselves as individuals. Despite biting criticisms of unqualified faith and religious structures of oppression abound in his lyrics, there is evidence that Ben holds either a pantheistic or panentheistic view of the universe.
+
+*Red nova ignition phase one:  
+To set ablaze the cosmos in all directions  
+To combust electron discharge  
+And dissipate the greatest void*
+
+*Repelling darkness, illuminating the canvas of all creation  
+Destroying eons of Death, the monad has come to life*
+
+*Submerged in the fire burning the vault of heaven  
+The celestial scion shines upon the universe frame*  
+( — **S**. **God is an Automaton**: *Red Nova Ignition*)
+
+*I watch the sky and pray for my deliverance  
+An endless whisper to find redemption  
+To breathe the fire of all creation divine  
+Ad aeternam, gloria… Gloria!*  
+( — **S**. **Antares**: *Ethernity*)
+
+These lyrics are imbued with a richer context when considering the following observations. First that the 2012 album title [God Is An Automaton was previously explained by Ben in an interview](https://thegrimtower.blogspot.com/2012/10/talking-philosophy-and-death-wave-with.html):
+
+> *Ben: there’s actually two meaning to our new album’s title: first, it is about the relation human beings have to the notion of “divinity”. It is neither a theological statement or a criticism against the notion of faith, but a commentary on the psychological impact of traditional systems of beliefs, especially monotheistic religions, who tend to encourage irresponsibility, so as to say the fact that people become quite inclined to use the excuse of a higher being as a justification to their nature, and thus deeds, in matters that are usually mundane and humans. By extension, this is also a stand against the cynics who use and abuse of organized religion and individual faith as a political tool, a mean to seize power: history gives us tons of examples about religions turned political systems. To sumarise, the automaton-god is an idol and an imitation, an artefact use by some for personal advantages or for external exculpation. Then, there’s also the idea of the God-automaton: the semantic difference is important here. What I mean is that if I would define God and give it a form, I’d say it is the machine and the operator at the same time, as well as the designer of the whole structure we call universe.*
+
+Granting the presumption that Ben’s metaphysics features a roughly pan(en)theistic view, we can attend to the primary point with sufficient grace. As stated previously, Ben regularly describes personal pain in relation to burning sensations. This extends into the cosmic sphere in a way that parallels human development in general. The cosmos was once ‘set ablaze in all directions’ (ala Red Nova Ignition) but in turn we experience ‘the burn of profound misery’ (ala Twelve Megatons Gravity.) In Ethernity, Ben expresses the desire to:
+
+*Drain my blood and drown me in the sun  
+Forever cured and sanctified  
+Now reborn we cross the Rubicon  
+Eternity will blend our minds in one*  
+( — **S**. **Antares**: *Ethernity*)
+
+Drowning in the sun calls to mind a parallel in *Omega Point* which references an ‘Inner nova consuming my life.’ Holding in mind that Ben views destruction as containing purifying properties (‘Self-destruction seems so sweet’ & ‘I vanish purified and escape through decay’ ala *Dynamic*) there appears to be a linkage between cosmic and personal fate in his worldview. Recalling *Red Nova Ignition*, it is as if humanity is ‘burning [with] the vault of heaven’ and through our gradual corporeal destruction we may ‘breathe the fire of all creation divine’ (ala *Ethernity*).
+
+The strain of security. Ben’s personal struggles are reported in the same texts that identify sociological problems. In this post, we have explored the existential significance Ben places on human sorrow, but have said little about its causes — save for concepts teased in the introduction. This will explored in greater detail in the next post. For now it will suffice to say that personal suffering affords sociological and metaphysical significance for Ben. The bridging of these concepts is made explicit in the aforementioned interview, which is summarized well in the following ‘mission statement’:
+
+> *[Inteviewer:] First of all, what does the concept of existentialism mean to the band, in it’s lyrics?*
+>
+> *Ben: well, to summarize, let’s say it’s a strong belief in the capability for a human being to stand on its own, without the need of a system of belief or ideology, and a clear emphasis on the idea of freewill and responsibility, which is somehow pretty important for us as persons in the band, even if I suppose my bandmates don’t always put words on that behaviour of ours. To a greater extend, existentialism as an edge over other schools of thought for giving to an individual a way to have a better insight of how he functions as well as a wide sense of possibility and despite a pessimistic mindset, a capacity of hope for a better future. So how is that important in Sybreed’s lyrics? Well, simply because existentialism which supposed people with willpower yet compassion and empathy, a certain taste for beauty and some common sense is exactly what the societies we live in are opposed to: the postmodern world is a pandemonium of power plays for economic dominance, in which populations themselves are considered as mere resources, an obsession of control and security which lead to the temptation of totalitarianism, in hard of soft forms. Sybreed is our way to stand against this, to give an “essence” to our “existence”.*
+
+*The strain of security will lead your steps into this world*  
+( — **S**. **Slave Design**: *Synthetic Breed*)
